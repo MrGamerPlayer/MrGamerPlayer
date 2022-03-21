@@ -4,6 +4,7 @@
 - 📫 How to reach me: Discord username: MrGamerplayer#1867
 
 Join our alwelsome community:
+Johnheikens.com
 https://discord.gg/XwnR2kY56q
 
 <!---
